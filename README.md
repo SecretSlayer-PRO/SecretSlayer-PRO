@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @SecretSlayer / Leo
-- 👀 I’m interested in Hacking (Ethical Hacking)
-- 🌱 I’m currently learning Ethical Hacking
-- 💞️ I’m looking to collaborate on Ethical Hacking
-- 📫 How to reach me https://www.roblox.com/users/1432973135/profile
-- 😄 Pronouns: Meow/Pro/SS
+- 👋 Hi, I’m @SecretSlayer
+- 👀 I’m interested in Hacking (Ethical Hacking) & Coding
+- 🌱 I’m currently learning Coding
+- 💞️ I’m looking to collaborate on Ethical Hacking & Coding
+- 📫 How to reach me https://www.roblox.com/users/1432973135/profile & https://discord.gg/ERjeBujm9M
+- 😄 Pronouns: Pro/SS
 - ⚡ Fun fact: I am not scared of anything, I am only scared of Allah.
 
 <!---
