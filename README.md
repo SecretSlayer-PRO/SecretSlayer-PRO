@@ -2,7 +2,7 @@
 - 👀 I’m interested in Hacking (Ethical Hacking) & Coding
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on Ethical Hacking & Coding
-- 📫 How to reach me https://www.roblox.com/users/1432973135/profile & https://discord.gg/ERjeBujm9M
+- 📫 How to reach me [Roblox Profile](https://www.roblox.com/users/1432973135/profile) & [Discord Server](https://discord.gg/NchgMztxQM)
 - 😄 Pronouns: Pro/SS
 - ⚡ Fun fact: I am not scared of anything, I am only scared of Allah.
 
